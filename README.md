@@ -1,1 +1,1 @@
-# sendai-nityu-niko-zaikyo2026
+# sendai-nityu-niko-zaikyo
